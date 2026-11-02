@@ -1,5 +1,3 @@
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/401911bc-a763-46df-93cc-ed048e6d23ee" /># Way Back Home (2011)
-
 > "Little turtle, lost at sea..." — Jessica Santiago
 
 ## Movie Info
